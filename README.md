@@ -1,12 +1,12 @@
 91吃瓜网官网永久域名：https://91cggw.com/
 
-失联后如何获取最新地址：
+失联后如何获取最新地址：https://violet.tmv8wejd.cc/
 
 方法1：邮箱发送任意邮件至 官方邮箱可获取最新地址
 
 牢记官方邮箱：yeqi451@gmail.com
 
-方法2：关注 91吃瓜网 Twitter：https://x.com/l_noni
+方法2：关注 91吃瓜网 Twitter：https://x.com/WTF103
 
 方法3：加入 91吃瓜网 Telegram公告频道：https://t.me/cggwcom91
 
