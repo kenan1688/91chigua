@@ -6,7 +6,7 @@
 
 牢记官方邮箱：yeqi451@gmail.com
 
-方法2：关注 91吃瓜网 Twitter：https://x.com/WTF103
+方法2：关注 91吃瓜网 Twitter：https://x.com/jiuyichigua
 
 方法3：加入 91吃瓜网 Telegram公告频道：https://t.me/cggwcom91
 
