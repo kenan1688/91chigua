@@ -1,6 +1,6 @@
 91吃瓜网官网永久域名：https://91cggw.com/
 
-失联后如何获取最新地址：https://violet.tmv8wejd.cc/
+失联后如何获取最新地址：https://zenith.anmei.cc/
 
 方法1：邮箱发送任意邮件至 官方邮箱可获取最新地址
 
